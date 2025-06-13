@@ -1,1 +1,0 @@
-# generovani_kodu
